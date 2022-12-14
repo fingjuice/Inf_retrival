@@ -1,2 +1,2 @@
 # Inf_retrival
-null
+# ajy lys lqc slc
